@@ -1,0 +1,2 @@
+# Asar-Heru-Ptah
+EGO IS A FALSE ENTITY
